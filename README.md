@@ -2,3 +2,8 @@
 ## WELCOME 
 
 This is the ITETHIC Reading List for 1st Trimester SY 2015-2016
+
+ON FACEBOOK: https://facebook.com/itethic
+ON PBWORKS:  https://itethic.pboworks.com
+
+
