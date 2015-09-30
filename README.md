@@ -7,4 +7,8 @@ ON FACEBOOK: https://facebook.com/itethic
 
 ON PBWORKS:  https://itethic.pboworks.com
 
+licensed under a
+
+Creative Commons Attribution-Noncommercial-Share Alike 3.0 Philippines License.
+
 
