@@ -7,4 +7,6 @@ ON FACEBOOK: https://facebook.com/itethic
 
 ON PBWORKS:  https://itethic.pboworks.com
 
+This repo is licensed under a:
 
+Creative Commons License
